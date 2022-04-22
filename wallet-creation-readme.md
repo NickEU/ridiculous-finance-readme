@@ -1,0 +1,1 @@
+Hello! Wanna create a new wallet? It's easy! This will only take 10 minutes.
